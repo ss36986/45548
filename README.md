@@ -22,4 +22,4 @@
 如果你在寻找一个每日更新、播放稳定、资源丰富的日本AV免费在线观看网站，本站是值得收藏的选择。每天都有新内容上线，随时访问，无需等待。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss36986/45548 ）</span>
